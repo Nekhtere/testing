@@ -1,0 +1,2 @@
+# testing
+mencoba belajar ajah
